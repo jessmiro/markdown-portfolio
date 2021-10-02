@@ -1,1 +1,8 @@
-Replace this with a list of your favorite things.
+Brands to buy from
+* Selkie
+    * Dresses
+    * Skirts
+* Whimsical Lace
+    * Dresses
+* Frilie_Shop
+    * Dresses
