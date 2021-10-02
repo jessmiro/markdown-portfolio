@@ -1,0 +1,1 @@
+![Monet's painting 'The Artist's Garden at Giverny, painted in 1900](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b1/Monet_-_Monets_Garten_in_Giverny.jpg/700px-Monet_-_Monets_Garten_in_Giverny.jpg)
